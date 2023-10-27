@@ -1,3 +1,2 @@
 ## Railin 🎮
-
-v2 soon 👀
+hi we made this i guess 🤷‍♀️🤷‍♀️
