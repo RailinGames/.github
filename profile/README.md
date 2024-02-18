@@ -1,2 +1,2 @@
 # 🎮 Welcome to Railin'
-Nvm Lol but go follow the owner [**Cartxrr**](https://github.com/cartxrr/)
+Nvm Lol but go follow the owner [**Hypverr/Cartxrr**](https://github.com/hypverr/)
